@@ -59,13 +59,12 @@ not just solving problems, but inspiring innovation.
 
 🌍 Connect With Us
 
-📧 Email: contact@karak.dev
+📧 Email: karaksoftwares@gmail.com
 
-🔗 Website: www.karak.dev
- (placeholder — update with your domain)
-💼 LinkedIn: KARAK on LinkedIn
+Twitter/X: https://x.com/Karakexe
+Instagram: https://www.instagram.com/karakexe
+Tiktok: https://www.tiktok.com/@karakexe
 
-🐦 Twitter/X: @KARAKTech
 
 © KARAK
 
